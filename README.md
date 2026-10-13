@@ -17,3 +17,5 @@ I work at the intersection of **customer-facing technical delivery** and **appli
 
 ### 📫 Reach me
 - Email: **priyamchandr@gmail.com**
+- LinkedIn: **[priyam-chandra](https://linkedin.com/in/priyam-chandra)**
+- 📍 Bengaluru, India
